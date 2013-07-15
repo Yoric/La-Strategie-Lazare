@@ -1,5 +1,5 @@
-Lève-toi et tue
-===============
+Comme un diable hors du tombeau
+===============================
 
 D’un bond, le Lazare se releva et sortit de sa cachette. À peine avait-il touché le sol qu’il tournoyait sur lui-même et que son épée, tendue au bout de son bras, cherchait une chair à mordre. Ce fut une gorge que l’épée trouva en premier et qu’elle trancha sans prendre le temps de s’arrêter.
 
@@ -13,6 +13,6 @@ Le Templier sauteur avait échappé à la lame du Lazare et le Lazare esquiva à
 
 Le Templier au sol était piégé, désarmé et saignait. Un autre continuait à mourir et le dernier à fuir. Le Lazare se releva, aux aguets, souffle court, l’épée tendue vers son ennemi tombé. Il comptait interroger son prisonnier avant l'arrivée des renforts. Son idée changea lorsqu’il identifia le geste que le Templier esquissait. Les yeux vissés dans ceux du Lazare, le Templier venait de sortir son bras valide de sa tunique. Il tenait une grenade à main, dont il essayait à présent d’arracher la goupille. Le Lazare l’acheva d’un coup d’épée au cœur.
 
-Le Lazare se retourna, attrapa la besace et la glissa en bandoulière. Il se baissa rapidement pour prendre la grenade et la glisser dans son sac, puis, encore nu, épée ensanglantée à la main, il commença à courir le long du couloir qui sortait de la crypte. Avant de replonger dans l’obscurité, il remarqua que son avant-bras gauche était tatoué de large lettres gothiques. « LÈVE-TOI ET MARCHE, » ordonnait le tatouage.
+Le Lazare se retourna, attrapa la besace et la glissa en bandoulière. Il se baissa rapidement pour prendre la grenade et la glisser dans son sac, puis, encore nu, épée ensanglantée à la main, il s'enfonça en courant dans le couloir. Avant de replonger dans l’obscurité, il remarqua que son avant-bras gauche était tatoué de large lettres gothiques. « LÈVE-TOI ET MARCHE, » ordonnait le tatouage.
 
 « Très drôle, » murmura le Lazare.
